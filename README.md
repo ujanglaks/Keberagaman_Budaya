@@ -1,2 +1,2 @@
 # Keberagaman_Budaya
-Pendidikan PancasilaUntuk siswa kelas IV SD
+Pendidikan Pancasila untuk siswa kelas IV SD
